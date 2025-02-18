@@ -1,0 +1,2 @@
+# Miscellaneous
+Fire safety guidelines
